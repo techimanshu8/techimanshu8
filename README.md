@@ -5,7 +5,7 @@
 
 
 
-I am Himanshu Saini currently a prefinal-year undergraduate of Motilal Nehru National Institute Of Technology(MNNIT).
+I am Himanshu Saini currently a Final-year undergraduate of Motilal Nehru National Institute Of Technology(MNNIT).
   ## 🔥 Languages:
 
 <p align="left"> 
